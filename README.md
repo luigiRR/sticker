@@ -1,0 +1,2 @@
+# sticke
+DAME MI STICKER
